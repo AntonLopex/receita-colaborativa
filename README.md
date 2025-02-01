@@ -1,7 +1,7 @@
 Receita de Tortilla Española
 
 Ingredientes
-- 5 ovos do curral de Antón
+- 6 ovos
 - 2 patacas medianas
 - Aceite de oliva
 - Sal
